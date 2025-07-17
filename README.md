@@ -1,2 +1,1 @@
-![](https://i.imgur.com/Cfaa6rH.jpeg)
-![](https://i.imgur.com/Ck5YMGq.jpeg)
+u weird if u a proshipper just like toxic yaoi/yuri like the rest of us
