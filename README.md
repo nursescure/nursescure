@@ -15,5 +15,5 @@ i automatically assume ppl r c+h friendly and i do tend to bother people and sta
 i love stalking peoples profiles!!
 
 random links and such :D
-[prnscc](https://pronouns.cc/@nursescure) [main rentry](rentry.co/mariasfate) [atabook](https://nursescure.atabook.org) [interests](rentry.co/residenthill)[instagram](https://www.instagram.com/tojipill?igsh=MTR1enlqNmMwb2Rrag%3D%3D&utm_source=qr)
-best way to contact me!!
+[prnscc](https://pronouns.cc/@nursescure) [main rentry](rentry.co/mariasfate) [atabook](https://nursescure.atabook.org) [interests](rentry.co/residenthill) [instagram](https://www.instagram.com/tojipill?igsh=MTR1enlqNmMwb2Rrag%3D%3D&utm_source=qr)
+(best way to contact me!!)
